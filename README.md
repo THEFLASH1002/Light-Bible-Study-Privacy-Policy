@@ -1,1 +1,1 @@
-# Light-Bible-Study-Ptivacy-Policy
+# Light-Bible-Study-Privacy-Policy
